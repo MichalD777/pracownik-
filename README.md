@@ -1,1 +1,1 @@
-# Egzamin Michal Dudiznski 
+# Egzamin Michal Dudzinski
